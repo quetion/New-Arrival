@@ -1,2 +1,4 @@
-# New-Arrival
-I am a rookie. Thank you for all your comments
+# 成為一個優秀的大學生
+- 懂得捨得：不一定要閱讀完所有的材料，但要略讀
+- 每天起床記得整理床鋪
+- 
